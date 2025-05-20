@@ -30,7 +30,7 @@
 
 ### 📫 Connect with Me
 
-- 📧 Email: `your.email@example.com`
+- 📧 Email: `taslima2422@gamil.com`
 - 🔗 LinkedIn: [Mahinur Rahman Mahin](https://www.linkedin.com/in/mahinurrahmanmahin)
 
 ---
